@@ -1,8 +1,5 @@
-   ### Hi there👋, I'm Rizwan
-
-                 𝐃𝐚𝐭𝐚 𝐀𝐧𝐚𝐥𝐲𝐬𝐭
-                
-
+   ### Hi there👋, I'm Mohd. Rizwan | Data Analyst
+   
 - 🔭 I’m currently working on upgrading My Data Analytical Skills
 
 - 🤝 I'm open to collaborating on Linkedin
