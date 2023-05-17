@@ -9,7 +9,9 @@ I am a data enthusiast with a passion for unlocking insights and trends that dri
 - 📫 You can contact me at rizwan.data23@gmail.com
 
 ### Skills
-[![Badge](C:\Users\hp\Desktop)](https://github.com/Rizwan-23/Rizwan-23)
+[/twitter/url?url=https://www.python.org/](C:\Users\hp\Desktop)]([https://github.com/Rizwan-23/Rizwan-23](https://www.python.org/))
+
+/twitter/url?url=https://www.python.org/
 
 
 
