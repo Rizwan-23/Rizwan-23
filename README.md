@@ -6,7 +6,7 @@ I am a data enthusiast with a passion for unlocking insights and trends that dri
 
 - 🤝 I'm open to collaborating on Linkedin
 
-- 📫 You can contact me at rizwan.data23@gmail.com
+- 📫 You can contact me at officialmohdrizwan@gmail.com
 
 
 
